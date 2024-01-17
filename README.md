@@ -9,4 +9,4 @@ Part 1 - The scamming.
 
 Dont get me wrong, Raven is a scammer.
 ^ He tried to scam me once 
-  ^ Screenshots of this: https://media.discordapp.net/attachments/1053998849385058336/1197197482627694612/image.png?ex=65ba640a&is=65a7ef0a&hm=5cfe7a43049c433896444465fdb48ee3fa3cf831fbfe3ba0d1c3bf215d331b6a&=&format=webp&quality=lossless&width=1946&height=948
+  ^ Screenshots of this: ![image](https://github.com/CrimsonfiedOfficial/My-Perspective/assets/122784385/7c1dad22-59bb-49b8-b177-9f45221a382f)
