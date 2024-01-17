@@ -3,7 +3,9 @@ This is my perspective on the whole "Raven and TheAdminHammer" situation
 
 
 Raven, if you send threats in my DMs or anything like that, I'll block you and upload screenshots here.
-
+________________________________________________________________________
+Thank you @nothammer043 for sending me all of the screenshots in part 1
+________________________________________________________________________
 ____________________________________________________________________________________________
 Part 1 - The scamming.
 
