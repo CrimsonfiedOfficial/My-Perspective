@@ -68,6 +68,7 @@ Damn bro raven caught lacking?? I thought it was your money bro 🤡
 ![image](https://github.com/CrimsonfiedOfficial/My-Perspective/assets/122784385/3c41fafb-8563-4e9f-97c8-dcd18510db2a)
 
 Hammer sold $50 worth of robux just to pay for his shit
+
 ![image](https://github.com/CrimsonfiedOfficial/My-Perspective/assets/122784385/e7d0b13a-3aec-4648-b954-5a0708c08f0f)
 
 ![image](https://github.com/CrimsonfiedOfficial/My-Perspective/assets/122784385/cff20c4c-e5d1-4ae8-a484-0377c44e66e7)
