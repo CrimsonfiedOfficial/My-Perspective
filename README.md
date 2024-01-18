@@ -20,3 +20,4 @@ Raven also sold 1k robux for a high price to someone. im not sure who but i know
 ____________________________________________________________________________________________
 
 # Part 2 - Raven sending nsfw to someone 12/13 years old
+![image](https://github.com/CrimsonfiedOfficial/My-Perspective/assets/122784385/b476401d-a1ea-4067-91e7-869c22bf3df1)
