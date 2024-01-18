@@ -1,6 +1,7 @@
 # My-Perspective
 This is my perspective on the whole "Raven and TheAdminHammer" situation
 
+## To be honest, Hammer is a nice guy. Raven is just a fuckwit.
 
 Raven, if you send threats in my DMs or anything like that, I'll simply block you and upload screenshots here.
 ________________________________________________________________________
@@ -46,6 +47,8 @@ Raven made the idea of CTP as a tool to farm after byfron release, from my exper
 ### Mad respect to theadminhammer for not letting out his anger.
 You can clearly see how badly Hammer was fustrated by Ravens actions. I dont know how raven didnt look back and feel bad for hammer, not even realising what he did.
 
-____________________________________________________________________________________________
+_____________________________________________________________________________________________ 
 
-Part 5
+# Part 5 - Raven trying to ruin TheAdminHammers image by messaging some of his friends messaging false claims
+
+![image](https://github.com/CrimsonfiedOfficial/My-Perspective/assets/122784385/3594307b-281f-429d-8a0d-6039008d8b31)
