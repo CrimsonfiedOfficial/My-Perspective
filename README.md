@@ -18,14 +18,14 @@ ________________________________________________________________________________
 
 # Part 2 - Raven sending nsfw to someone 12/13 years old
 Alright, what the flip dude. (im so confused on why raven would send nsfw knowing damn well he who he sent it to was 13)
-![image](https://github.com/CrimsonfiedOfficial/My-Perspective/assets/122784385/b476401d-a1ea-4067-91e7-869c22bf3df1)
+![image](https://github.com/CrimsonfiedOfficial/My-Perspective/assets/122784385/7c0deb0f-8567-4ff6-9754-b5463c3f541b)
 
 ____________________________________________________________________________________________
 
 # Part 3 - Scamming a Dev (sequel to part 1)
 
 Here is your daily dose of proof: 
-![image](https://github.com/CrimsonfiedOfficial/My-Perspective/assets/122784385/852cc9bc-5654-4e6d-9cbc-48da05964e30)
+![image](https://github.com/CrimsonfiedOfficial/My-Perspective/assets/122784385/000df338-ff12-4254-b9d1-55f090eec245)
 
 ____________________________________________________________________________________________
 
