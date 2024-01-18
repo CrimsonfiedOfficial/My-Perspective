@@ -81,3 +81,7 @@ ________________________________________________________________________________
 # Part 7 - Ravens common sense 
 
 ![image](https://github.com/CrimsonfiedOfficial/My-Perspective/assets/122784385/b30fdc0d-e3b3-4f8c-919e-50044d7f052f) ![image](https://github.com/CrimsonfiedOfficial/My-Perspective/assets/122784385/44112215-daff-4df4-8cc8-43c7679bb527)
+
+(How am I  supposed to know about CTP if I doesn't know CTP)
+
+
