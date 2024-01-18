@@ -14,6 +14,11 @@ Raven didnt want me to find out about pls donate utils and stuff like that, incl
 
 Raven also sold 1k robux for a high price to someone. im not sure who but i know that he still did it to someone.
 
+Hammer: ![image](https://github.com/CrimsonfiedOfficial/My-Perspective/assets/122784385/355b6e1b-767a-455d-a1ef-cb4aca1b98af)
+
+Raven: ![image](https://github.com/CrimsonfiedOfficial/My-Perspective/assets/122784385/fba52761-d360-4999-98d4-baf8ca0166b8)
+
+
 ____________________________________________________________________________________________
 
 # Part 2 - Raven sending nsfw to someone 12/13 years old
@@ -40,3 +45,7 @@ Raven made the idea of CTP as a tool to farm after byfron release, from my exper
 
 ### Mad respect to theadminhammer for not letting out his anger.
 You can clearly see how badly Hammer was fustrated by Ravens actions. I dont know how raven didnt look back and feel bad for hammer, not even realising what he did.
+
+____________________________________________________________________________________________
+
+Part 5
