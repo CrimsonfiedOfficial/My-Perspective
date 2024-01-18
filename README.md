@@ -63,6 +63,7 @@ Raven took Hammers domain "nanomidi.app" and he claims that "Its his money"
 ![image](https://github.com/CrimsonfiedOfficial/My-Perspective/assets/122784385/ea86c1b9-3a1b-42cd-b7c5-8d2550163a99)
 
 Damn bro raven caught lacking?? I thought it was your money bro 🤡
+
 ![image](https://github.com/CrimsonfiedOfficial/My-Perspective/assets/122784385/370d2258-594c-44cc-86c5-a6455c4187c9)
 ![image](https://github.com/CrimsonfiedOfficial/My-Perspective/assets/122784385/3c41fafb-8563-4e9f-97c8-dcd18510db2a)
 
