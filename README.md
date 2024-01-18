@@ -34,6 +34,7 @@ ________________________________________________________________________________
 ### Hammers Perspective on CTP
 Raven made the idea of CTP as a tool to farm after byfron release, from my experience, he is a horrible business partner, when i was still coding CTP he already made a very early release date which forced me to literally break my sleep schedule by a ton, when the release date he promised was there, the software wasn't even done, instead he let people preorder the software when i wasn't even done with AutoLaunch + AutoInject. This pushed me even more and even got a bunch of people mad because we had "4" devs and it was taking a while for us to finish, the reality is i was the only one coding major parts of the project like AutoLaunch, AutoInject, CacheCleaner, Massconfig, and a bunch more, All Raven did was basic stuffs which anyone can do in less than 5 minutes with ChatGPT.
 
+### Screenshot taken directly from Hammers Readme (link at the top)
 ![image](https://github.com/CrimsonfiedOfficial/My-Perspective/assets/122784385/086c735d-d869-4726-8763-5877e0b130ac)
 
 
