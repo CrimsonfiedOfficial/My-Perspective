@@ -2,10 +2,9 @@
 This is my perspective on the whole "Raven and TheAdminHammer" situation
 
 
-Raven, if you send threats in my DMs or anything like that, I'll block you and upload screenshots here.
+Raven, if you send threats in my DMs or anything like that, I'll simply block you and upload screenshots here.
 ________________________________________________________________________
-Thank you @nothammer043 for sending me all of the screenshots in part 1
-________________________________________________________________________
+Thank you @nothammer043 for sending me all of the screenshots in Part 1. Most images here taken from TheAdminHammers Readme (https://github.com/NotHammer043/CeeTeePee/blob/main/README.md)
 ____________________________________________________________________________________________
 # Part 1 - The scamming.
 
@@ -27,3 +26,8 @@ ________________________________________________________________________________
 
 Here is your daily dose of proof: 
 ![image](https://github.com/CrimsonfiedOfficial/My-Perspective/assets/122784385/852cc9bc-5654-4e6d-9cbc-48da05964e30)
+
+____________________________________________________________________________________________
+
+# Part 3 - CTP
+
