@@ -84,4 +84,24 @@ ________________________________________________________________________________
 
 (How am I  supposed to know about CTP if I doesn't know CTP)
 
+____________________________________________________________________________________________
+
+# Part 8 - CTP
+
+CTP got exposed for Malicously Logging people, CTP's reputation got ruined, they claimed that ctp was selling the data which is not true, it was only used for software protection, they also claimed that it would run when you open the software but in reality it would only run if the data sent did not match with the webserver's data
+(^ TheAdminHammer)
+
+What it logged: 
+IP = Ban people from the webserver
+
+Bot Token = To see who owns the bot and see the user thats trying to tamper with the software
+
+Screenshot = To make sure it wasn't a false alert
+
+( ^ Also from TheAdminHammer)
+
+# Hunter:
+
+Hunter is a innocent guy, but he got accused of putting the Malicious stuff on the code (He doesn't even have access to the bot code and he only worked on the UI). TheAdminHammer asked raven to atleast clear his name but he refused to (probably because he hated him)
+____________________________________________________________________________________________ 
 
