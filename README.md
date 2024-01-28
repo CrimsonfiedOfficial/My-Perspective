@@ -105,3 +105,21 @@ Screenshot = To make sure it wasn't a false alert
 Hunter is a innocent guy, but he got accused of putting the Malicious stuff on the code (He doesn't even have access to the bot code and he only worked on the UI). TheAdminHammer asked raven to atleast clear his name but he refused to (probably because he hated him)
 ____________________________________________________________________________________________ 
 
+# Part 9 - nanomidi.app (first nanomidi domain)
+
+"I recommend to not use nanoMIDI or anything it has with it" So its okay for people to use it when your there, but when you decided to fuck everything with hammer its somehow dangerous to use stuff made by nanomidi?? "Crimsonfied has continued to harass me, and Admin, along with Crimsonfied, has been spreading false information about me" but you decide to spread false information about nanomidi? 
+Everything made by nanomidi is open source, so if you think its a trojan, then just go check out the source code ffs. Get yo shit straight bro 🤦‍♂️
+
+## "⚠️ nanoMIDIPlayer is highly flagged by Windows Defender and scanning tools like VirusTotal due to the way the Executable is Compiled! (Nuitka makes it worst, i only used it because it could compile with the packages) ⚠️" - TheAdminHammer
+
+![image](https://github.com/CrimsonfiedOfficial/My-Perspective/assets/122784385/fa72886b-3068-4df1-8a30-2b74f6cfb4b3)
+
+
+
+
+![image](https://github.com/CrimsonfiedOfficial/My-Perspective/assets/122784385/aa334b10-7db6-4fcd-8ee2-988ad8bf62a5)
+
+
+
+
+
